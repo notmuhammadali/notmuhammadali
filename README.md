@@ -1,0 +1,5 @@
+- Hi, I’m Muhammad Ali
+- Learning Python
+- Future CS or CE student insha'Allah (if God wills)
+- Like watching and playing football (FIFA, real-life, etc)...
+- Peace ✌
